@@ -1,9 +1,1 @@
 # Adoteaquiresilia
-# Resiliapet-
-# Resiliapet-
-# Resiliapet-
-# Resilia--PET
-# Resilia--PET
-# Resilia--PET
-# Resilia--PET
-# Resilia--PET
